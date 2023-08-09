@@ -1,0 +1,1 @@
+# prak9statiska_mendaripertiwi
